@@ -50,7 +50,7 @@ I am delighted to contribute to moderate XR Courses as an engineering subject in
 I look forward to share my experience and knowledge via writing articles, open source solutions and white papers and books(for free without any royalty).
 
 📫 How to reach me 
-Email at "summitgamesentertainment@gmail.com"
+Email at "sumit.jain.connect@gmail.com"
 
 
 <!---
